@@ -1,7 +1,7 @@
 ### Olá eu sou à DudaPC!
 
 
-- 🌱 atualmente estou estudando o básico de programação
+- 🌱 atualmente estou estudando ADS pela UniCessumar
 - 😄 Pronomes: ela/dela
 - ⚡ Curiosidades: ...
 
