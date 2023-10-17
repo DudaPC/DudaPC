@@ -1,7 +1,7 @@
-### Olá eu sou à DudaPC!
+### Olá eu sou à maria ou Duda como você preferir!
 
 
-- 🌱 atualmente estou estudando ADS pela UniCessumar
+- 🌱 atualmente estou estudando Design Gráfico pela UniCessumar
 - 😄 Pronomes: ela/dela
 - ⚡ Curiosidades: ...
 
